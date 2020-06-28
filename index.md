@@ -5,7 +5,7 @@ Alle zu nennen wuerde den Rahmen sprechen.
 Exemplarisch genannt seinen an dieser Stelle nur:
 
 
-## G. Lees groesste Erfolge
+## G. Lees groessten Erfolge
 
 * die Aktivierung eines ehemals traegen, unfoermig moppeligen ITlers zum bekennenden drahtigen Laeufer
 * die Transformation von neutral riechendem, festem Trockenfutter in den gasförmigen Aggregatszustand mit unverwechselbarer individueller Olfaktorik
@@ -14,7 +14,7 @@ Exemplarisch genannt seinen an dieser Stelle nur:
 
 
 ## Ein Zitat
-Wie ärmlich scheint das eigene Wort beim Versuch, diese Heldentaten zu beschreiben.
+Wie aermlich scheint das eigene Wort beim Versuch, diese Heldentaten zu beschreiben.
 Lassen wir den Helden selbst sprechen!
 
 Guck... winnnnnsel ..... WUFF!!!
