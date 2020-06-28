@@ -1,6 +1,6 @@
 # Seppis Fanseite fuer G. Lee aka Chilli
 
-G. Lee hat es geschafft, sich innerhalb weniger Wochen unverzichtbar zu machen durch ueberragende Leistungen in verschiedensten herausfordernden Situationen.
+G. Lee hat es geschafft, sich innerhalb weniger Wochen unverzichtbar zu machen durch ueberragende Leistungen in verschiedensten Situationen.
 
 Alle zu nennen wuerde den Rahmen sprechen. 
 
@@ -10,8 +10,8 @@ Exemplarisch genannt seinen an dieser Stelle nur:
 
 ## G. Lees groessten Erfolge
 
-* die Aktivierung eines ehemals traegen, unfoermig moppeligen ITlers zum bekennenden drahtigen Laeufer
-* die Transformation von neutral riechendem, festem Trockenfutter in den gasförmigen Aggregatszustand mit unverwechselbarer individueller Olfaktorik
+* die Aktivierung eines ehemals traegen, unfoermigm, moppeligen ITlers zum bekennenden drahtigen Laeufer
+* die Transformation von neutral riechendem, festem Trockenfutter in den gasförmigen Aggregatszustand mit unverwechselbarer Olfaktorik
 * die Bewachung eines weitlaeufigen Landguts im Sueden von Stuttgart allein durch Gedankenkraft
 
 
