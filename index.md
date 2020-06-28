@@ -20,7 +20,8 @@ Lassen wir den Helden selbst sprechen!
 Guck... winnnnnsel ..... WUFF!!!
 
 
-Hier ein Bild vom Helden
+
+Und so sieht er aus... unser Held!
 
 <img src="http://seppix.de/glee/glee1.jpg"/>
 
