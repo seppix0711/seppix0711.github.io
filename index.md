@@ -14,7 +14,7 @@ Exemplarisch genannt seinen an dieser Stelle nur:
 
 
 ## Ein Zitat
-Wie aermlich scheint das Wort beim Versuch, diese Heldentaten zu beschreiben.
+Wie aermlich scheint das eigene Wort beim Versuch, diese Heldentaten zu beschreiben.
 
 Lassen wir den Helden selbst sprechen :-)
 
