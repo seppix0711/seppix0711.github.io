@@ -10,7 +10,7 @@ Exemplarisch genannt seinen an dieser Stelle nur:
 
 ## G. Lees groessten Erfolge
 
-* die Aktivierung eines ehemals traegen, unfoermigm, moppeligen ITlers zum bekennenden drahtigen Laeufer
+* die Aktivierung eines ehemals traegen, unfoermigen, moppeligen ITlers zum bekennenden drahtigen Laeufer
 * die Transformation von neutral riechendem, festem Trockenfutter in den gasförmigen Aggregatszustand mit unverwechselbarer Olfaktorik
 * die Bewachung eines weitlaeufigen Landguts im Sueden von Stuttgart allein durch Gedankenkraft
 
