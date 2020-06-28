@@ -1,8 +1,11 @@
 # Seppis Fanseite fuer G. Lee aka Chilli
 
 G. Lee hat es geschafft, sich innerhalb weniger Wochen unverzichtbar zu machen durch ueberragende Leistungen in verschiedensten herausfordernden Situationen.
+
 Alle zu nennen wuerde den Rahmen sprechen. 
+
 Exemplarisch genannt seinen an dieser Stelle nur:
+
 
 
 ## G. Lees groessten Erfolge
