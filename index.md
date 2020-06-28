@@ -1,4 +1,4 @@
-# Seppis Fanseite fuer G. Lee aka Chilli
+# Seppis Fanseite fuer G. Lee aka Chilli !
 
 G. Lee hat es geschafft, sich innerhalb weniger Wochen unverzichtbar zu machen durch ueberragende Leistungen in verschiedensten Situationen.
 
