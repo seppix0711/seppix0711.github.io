@@ -19,3 +19,6 @@ Lassen wir den Helden selbst sprechen!
 
 Guck... winnnnnsel ..... WUFF!!!
 
+Hier ein Bild vom Helden:
+<img src="http://seppix.de/glee/glee1.jpg"/>
+
