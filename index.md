@@ -1,6 +1,6 @@
 # Seppis Fanseite fuer G. Lee aka Chili
 
-G. Lee hat es geschafft, sich innerhalb weniger Wochen unverzichtbar zu machen durch ueberragende Leistungen in verschiedensten Situationen.
+G. Lee hat es geschafft, innerhalb weniger Wochen unverzichtbar zu werden durch ueberragende Faehigkeiten in verschiedensten Bereichen.
 
 Alle zu nennen wuerde den Rahmen sprechen. 
 
