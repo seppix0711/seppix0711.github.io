@@ -1,1 +1,2 @@
-Hier entsteht gerade eine Webseite zu meinem Lieblingscharakter!
+# Seppis Fanseite fuer G. Lee aka Chilli
+
