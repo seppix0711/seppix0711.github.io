@@ -15,12 +15,6 @@ Exemplarisch genannt seinen an dieser Stelle nur:
 
 ## Ein Zitat
 Wie aermlich scheint das eigene Wort beim Versuch, diese Heldentaten zu beschreiben.
-
-Lassen wir den Helden selbst sprechen :-)
-
+Lassen wir den Helden selbst sprechen!
 
 Guck... winnnnnsel ..... WUFF!
-
-
-
-
